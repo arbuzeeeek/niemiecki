@@ -1,0 +1,2 @@
+# niemiecki
+Cos z AI
